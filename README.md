@@ -1,1 +1,1 @@
-"# KB24bet" 
+# KB24bet
